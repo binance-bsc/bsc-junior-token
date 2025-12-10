@@ -11,7 +11,7 @@
 </p>
 
 ---
-
+<a href="https://freeimage.host/"><img src="https://iili.io/fRl7wtj.png" alt="fRl7wtj.png" border="0" /></a>
 ## 📖 About
 
 **BINANCE JUNIOR APP** is a community-driven meme token launched on BNB Chain (BSC) to celebrate and support the official launch of Binance Junior - Binance's revolutionary savings app for kids and teens aged 6-17.
